@@ -43,7 +43,7 @@ I have also completed academic research on the impact of social media on academi
 
 ### Bachelor of Social Sciences — Sociology  
 **Varendra University, Rajshahi**  
-Currently in Final Semester
+Graduated - 2026
 
 ---
 
